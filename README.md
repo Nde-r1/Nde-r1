@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nde-r1
 - 👀 I’m interested in codding ... and book reading 
-- 🌱 I’m currently learning at KCAU University 
+- 🌱 I’m  learning at KCAU University 
 - 💞️ I’m looking to collaborate on the mostcomplex project hit me up ...
 - 📫 How to reach me , here's my email ndoloevans91@gmail.com 
 
